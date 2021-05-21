@@ -31,3 +31,23 @@ Syntropy (predictability) is dual to increasing entropy (unpredictability).
 Teleological physics (syntropy) is dual to non-teleological physics (entropy).
 New insights lead to a deeper understanding of the physics.
 Absolute truth is dual to relative truth -- Hume's fork.
+
+
+
+## Positive is dual to negative.
+Schrodinger's cat: Alive is dual to not alive.
+Being is dual to non being creates becoming -- Plato.
+Thesis is dual to anti-thesis creates the converging thesis or synthesis -- the time independent Hegelian dialectic.
+Hegel's or Plato's cat:- Alive (thesis, being) is dual to not alive (anti-thesis, non-being) -- Schrodinger's cat.
+Qubits = duality! On is dual to off, spin up is dual to spin down.
+Photons are dual. Light is either predictable (syntropy) as in reflection from a mirror or unpredictable as in diffuse surfaces. Randomness (diffuse, uncertainty) is dual to order (mirrors, certainty) -- the Heisenberg certainty/uncertainty principle.
+Duality = two sides of the same coin (heads or tails).
+Entangled entropy = correlated information or mutual information = syntropy!
+Bosons are dual to Fermions -- spin statistics theorem.
+Predictability (syntropy) is dual to unpredictability (entropy) -- the 4th law of thermodynamics!
+Teleological physics (syntropy) is dual to non-teleological physics (entropy).
+Duality creates reality!
+Mind (the internal soul, syntropy) is dual to matter (the external soul, entropy) -- Descartes.
+"Always two there are" -- Yoda.
+
+
